@@ -3,7 +3,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{#FFEA00}l\color{#FFFAA0}a\color{#FFFAA0}w\color{#FFEA00}f\color{#FFFAA0}u\color{#FFEA00}l\color{#000000}‎ \color{#FFFAA0}g\color{#FFEA00}o\color{#FFFAA0}o\color{#FFEA00}d}$$ ‎ ‎ ‎ ‎ ‎ $\color{#FFFAA0}{\textsf{₊}}$‎‎ ‎ ‎ ‎  ‎  $${\color{#FFEA00}i\color{#FFFAA0}n\color{#FFEA00}t\color{#FFFAA0}j\color{#FFEA00}⁻\color{#FFFAA0}t}$$
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ $${\color{#FFEA00}1\color{#FFFAA0}4\color{#FFEA00}-\color{#FFFAA0}1\color{#FFEA00}6\color{#hex}‎ \color{#FFFAA0}r\color{#FFEA00}a\color{#FFFAA0}n\color{#FFEA00}g\color{#FFFAA0}e}$$
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  $${\color{#FFEA00}5\color{#FFFAA0}t\color{#FFEA00}e\color{#FFFAA0}e\color{#FFEA00}n}$$
 ‎![gif](https://images-ext-1.discordapp.net/external/_PHJvxeDWeW-im-n3XIlC_8-o646hZNkRFI3VO5T8iU/https/files.catbox.moe/qs6b5f.gif?width=38&height=38)
 ‎
 
