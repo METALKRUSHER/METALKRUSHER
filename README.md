@@ -14,6 +14,16 @@
 <details>
 <summary></summary>
    <br>
-<p align="left">
+<p align="center">
 ‎
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ IDK WHAT TO PUT HERE ICL... SOMEONE HELP
+‎lunive/sylvester here! you can usually find me around the sonic area or near the bakery!
+ 
+ im a reserved person, so i dont really talk much.. but i swear im quite open to make new friends!
+ 
+‎most of the time, im offtab. either doing work, drawing or playing/watching. w2i!!
+ 
+‎‎‎c*h freely unless in any of my soulvester skins, thats cus i do not want the dw fandon interacting w/ me
+
+multishipper!! not gon put my ships out there but my otps rn are deliveryant (manny x anton), glamouroustv (mettaton x tenna), and defensemechanism (sparks x delta)!
+
+DNI PROTREE AND ANY PPL WHO INHABIT THAT FORSAKEN TREE
