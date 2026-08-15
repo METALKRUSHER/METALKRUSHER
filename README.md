@@ -26,4 +26,4 @@
 
 multishipper!! not gon put my ships out there but my otps rn are deliveryant (manny x anton), glamouroustv (mettaton x tenna), and defensemechanism (sparks x delta)!
 
-DNI PROTREE AND ANY PPL WHO INHABIT THAT FORSAKEN TREE
+DNI PROTREE AND ANY PPL WHO INHABIT THAT FORSAKENED TREE
