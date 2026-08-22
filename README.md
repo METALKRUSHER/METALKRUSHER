@@ -24,6 +24,8 @@
  
 ‎‎‎c*h freely unless in any of my soulvester skins, thats cus i do not want the dw fandon interacting w/ me
 
-multishipper!! not gon put my ships out there but my otps rn are deliveryant (manny x anton), glamouroustv (mettaton x tenna), and defensemechanism (sparks x delta)!
+multishipper!! not gon put my ships out there but my otps rn are greasytreasure (or wtv scrawl x sal is called), glamourouscreen (mettaton x tenna), and defensemechanism (sparks x delta)!
 
 DNI PROTREE AND ANY PPL WHO INHABIT THAT FORSAKENED TREE
+
+ex friends dni. ESPECIALLY those who have friends who are at the protree, shows me that you never changed and that frankly disgusts me.
