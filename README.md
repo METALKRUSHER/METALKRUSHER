@@ -28,4 +28,4 @@ multishipper!! not gon put my ships out there but my otps rn are greasytreasure 
 
 DNI PROTREE AND ANY PPL WHO INHABIT THAT FORSAKENED TREE
 
-ex friends dni. ESPECIALLY those who have friends who are at the protree, shows me that you never changed and that frankly disgusts me.
+ex friends iwec or just dni w me at all
